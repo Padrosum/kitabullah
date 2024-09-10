@@ -83,7 +83,7 @@ Tanrı dedi ki Sular, bol yaşayan canlılar taşısın ve kuşlar, Göklerin ku
 
 ### 1-21
 
-Yaradan, büyük deniz canlılarını ve dahi suyun taşıdığı bütün hareket eden deniz canlılarını, kendi zürriyetlerine göre ve kendi zürriyetleri üzerine kanatlı kuşları var ettirdi. O, bunların iyi olduğunu gördü.
+Yaradan, büyük deniz canlılarını ve dahi suydan taşan bütün hareket eden deniz canlılarını, kendi zürriyetlerine göre ve kendi zürriyetleri üzerine kanatlı kuşları var ettirdi. O, bunların iyi olduğunu gördü.
 
 ### 1-22
 
