@@ -1,5 +1,4 @@
-# Kitabullah
-
+# 
 ## Yaratılış
 
 ### 1:1
