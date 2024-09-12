@@ -1,5 +1,4 @@
-# 
-## Yaratılış
+ # Yaratılış
 
 Bismillahi Rahmani Rahim.
 
