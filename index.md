@@ -1,7 +1,7 @@
 # 
 ## Yaratılış
 
-Merhametli Rahman Allah Adına
+Bismillahi Rahmani Rahim.
 
 ### 1-1
 
@@ -94,5 +94,23 @@ Rab, Onları takdis edip dedi ki “verimli olun ve çoğalın, denizdeki sular�
 ### 1-23
 
 Sabah-Akşamın ardından beşinci gün.
+
+### 1-24
+Ardından Yüce Yaradan dedi ki “Dünya kendi zuriyetinde yaşayan canlı fışkırtsın; İnekler, sürünen canlılar ve Dünya canavarları kendi kendi zuriyetlerine göre.” ve dahi gerçekleşti
+
+### 1-25
+Vedahi Yüce Yaradan şunları kendilerinin zuriyetinde var etti; İnek, Dünya üzerinde sürünen herşey ve Rab bunun iyi olduğunu gördü
+
+### 1-26
+Yüce Yaradan dedi ki “Hadi bizim suretimizde bizim gibi adam yaratalım. Onlara şunlara yönelik hakimiyet verelim;Tüm deniz canlıları, Havanın Kuşlarını ve tüm İneklere, Tüm dünya üzerine ve dünya üzerinde sürünen şeylere.”
+
+#### 1-26T
+Biz ifadesinden kasıt şudur; İnsan'ın yaratılışı ikiye ayrılır bunlar; 1)Madde 2)Ruh idir ve Madde, Tanrı tarafından yaratılmış olmasına karşın Ruh, ondan sudur etmiştir. Buradaki biz ifadesinden kasıt Tanrı'nın önceden yaratığı gök ve yere -özellikle yere- Maddesi senden Ruhu benden insan yaratalım demesidir. Daha detaylı bilgi için [Peygamberlik ve Vahiy](https://padrosum.github.io/yazılar/nubuvvet-vahiy.html) 
+
+### 1-27
+Yani Tanrı, adamı kendi suretinde yarattı. Kendi suretinde onu kadın ve dişi olarak var etti. Tanrı onları yarattı.
+*
+Tefsir için 1-26T'ye bakınız!
+
 
 # Devamı Çok Yakında
