@@ -1,8 +1,15 @@
- # Yaratılış
+# Yaratılış
 
-Bismillahi Rahmani Rahim.
+### Destekçiler
+Twitter  
+@petruswerh   
+
+
+
 
 ## Birinci Bölüm
+
+Bismillahi Rahmani Rahim.
 
 ### 1-1
 
