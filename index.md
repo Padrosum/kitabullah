@@ -1,4 +1,6 @@
-# Yaratılış
+# Yaratılış  
+
+Bu çeviri FBV çevirisinin ve İbranice kutsal kitabın esas alınmasıyla yapılmıştır. İbranice metne sadakat ama aynı zamanda maksadçı bir çeviri anlayışı ortaya koymak istiyorum. Çeviri ve Tefsir konusundaki eleştirileriniz, fikirleriniz veyahut önerilerinizi [Twitter](https://x.com/padrosum) hesabımın dm bölümünden iletebilirsiniz. Çeviriye dahil olmak isterseniz aynı yere sizi de beklerim ;)
 
 ### Özel Teşekkür Bölümü
 Twitter'dan  
