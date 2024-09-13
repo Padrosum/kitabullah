@@ -21,7 +21,8 @@ Başlangıçta* Elohim** Gökleri*** ve yeri yarattı.
 
 ----  
 *Başlangıçta ifadesi ezeli evren/dünya tasavvurunda karşı çıkıştır.  
-**Elohim bu bağlam içinde "Yüce Yaradan/Vareden demektir." demektir.  
+**Elohim, Küçlü biri manasına gelmektedir. [Kaynak](https://www.biblestudytools.com/bible-study/topical-studies/elohim-supreme-one-mighty-one.html)   
+Burada Yüce Yaradan'ı tanımlamak için kullanılmıştır.  
 ***Daha evvel gök olarak/tekil çevirdiğim yerde bir hatta yapmışım. "Gökler" diye çoğul olması gerekiyordu.  
 
 ### 1-2
