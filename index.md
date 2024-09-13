@@ -4,7 +4,7 @@
 Twitter  
 @petruswerh   
 
-
+Lisans: CC BY-SA 4.0
 
 
 ## Birinci Bölüm
