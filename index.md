@@ -131,5 +131,8 @@ Ve dünyanın tüm yaratıklarına, Göklerin tüm kuşlarına, Dünya üzerinde
 ### 1-31
 Ardından Allah Yahve yarattığı tüm şeyleri gördü hepsi çok iyiydi. Sabah-Akşamın ardından altıncı gün.
 
+## İkinci Bölüm
+
+
 
 # Devamı Çok Yakında
