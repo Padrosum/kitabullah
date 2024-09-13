@@ -90,7 +90,7 @@ Elohim iki ışık var etti; bunlardan büyük olanı gündüze hüküm sürdü 
 
 ### 1-17
 
-Elohim onları Göklerin kubbesine koydu ki yere ışık versin/aydınlatsın.
+Elohim, onları göklerin kubbesine koydu ki yere ışık versin/aydınlatsın.
 
 ### 1-18
 
@@ -117,13 +117,13 @@ Elohim, Onları takdis edip dedi ki “verimli olun ve çoğalın, denizdeki sul
 Sabah-Akşamın ardından beşinci gün.
 
 ### 1-24
-Ardından Elohim dedi ki “Dünya kendi zuriyetinde yaşayan canlı fışkırtsın; İnekler, sürünen canlılar ve Dünya canavarları kendi kendi zuriyetlerine göre.” ve dahi gerçekleşti
+Ardından Elohim dedi ki “Dünya kendi zuriyetinde yaşayan canlı fışkırtsın; İnekler, sürünen canlılar ve Dünya canavarları kendi kendi zuriyetlerine göre.” Vedahi gerçekleşti
 
 ### 1-25
 Vedahi Elohim şunları kendilerinin zuriyetinde var etti; İnek, Dünya üzerinde sürünen herşey ve Rab bunun iyi olduğunu gördü
 
 ### 1-26
-Elohim dedi ki “Hadi bizim* suretimizde bizim gibi adam yaratalım. Onlara şunlara yönelik hakimiyet verelim;Tüm deniz canlıları, Havanın Kuşlarını ve tüm İneklere, Tüm dünya üzerine ve dünya üzerinde sürünen şeylere.”
+Elohim dedi ki “Hadi bizim* suretimizde bizim gibi adam yaratalım. Onlara şunlara yönelik hakimiyet verelim;Tüm deniz canlıları, Havanın Kuşlarını ve tüm İneklere, Tüm dünya üzerine vedahi dünya üzerinde sürünen şeylere.”
 
 ---  
 *Bizim ifadesinden kasıt şudur; İnsan'ın yaratılışı ikiye ayrılır bunlar; 1)Madde 2)Ruh idir ve Madde, Tanrı tarafından yaratılmış olmasına karşın Ruh, ondan sudur etmiştir. Buradaki biz ifadesinden kasıt Tanrı'nın önceden yaratığı gök ve yere -özellikle yere- Maddesi senden Ruhu benden insan yaratalım demesidir. Daha detaylı bilgi için [Peygamberlik ve Vahiy](https://padrosum.github.io/yazılar/nubuvvet-vahiy.html) 
@@ -138,7 +138,7 @@ Elohim, onları kutsadı ve dedi ki “Bereketli ve çok olun vedahi dünyayı d
 Ve Elohim dedi ki “Bakın, ben size şunları verdim; Dünya üzerinde tohum veren tüm bitkiler, Meyvesi içinde tohumu olan Ağaçlar. Siz bunlara yemek için sahip olacaksınız!”
 
 ### 1-30
-Ve dünyanın tüm yaratıklarına, Göklerin tüm kuşlarına, Dünya üzerinde hareket eden tüm canlılara; Ben yeşil bitkileri yiyecek olsun diye verdim. Ve dahi gerçek oldu. 
+Ve dünyanın tüm yaratıklarına, Göklerin tüm kuşlarına, Dünya üzerinde hareket eden tüm canlılara; Ben yeşil bitkileri yiyecek olsun diye verdim. Gerçek oldu. 
 ### 1-31
 Ardından Elohim yarattığı tüm şeyleri gördü hepsi çok iyiydi. Sabah-Akşamın ardından altıncı gün.
 
