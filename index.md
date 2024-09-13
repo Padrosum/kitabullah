@@ -119,10 +119,10 @@ Ardından Elohim dedi ki “Dünya kendi zuriyetinde yaşayan canlı fışkırts
 Vedahi Elohim şunları kendilerinin zuriyetinde var etti; İnek, Dünya üzerinde sürünen herşey ve Rab bunun iyi olduğunu gördü
 
 ### 1-26
-Elohim dedi ki “Hadi bizim suretimizde bizim gibi adam yaratalım. Onlara şunlara yönelik hakimiyet verelim;Tüm deniz canlıları, Havanın Kuşlarını ve tüm İneklere, Tüm dünya üzerine ve dünya üzerinde sürünen şeylere.”
+Elohim dedi ki “Hadi bizim* suretimizde bizim gibi adam yaratalım. Onlara şunlara yönelik hakimiyet verelim;Tüm deniz canlıları, Havanın Kuşlarını ve tüm İneklere, Tüm dünya üzerine ve dünya üzerinde sürünen şeylere.”
 
-#### 1-26T
-Biz ifadesinden kasıt şudur; İnsan'ın yaratılışı ikiye ayrılır bunlar; 1)Madde 2)Ruh idir ve Madde, Tanrı tarafından yaratılmış olmasına karşın Ruh, ondan sudur etmiştir. Buradaki biz ifadesinden kasıt Tanrı'nın önceden yaratığı gök ve yere -özellikle yere- Maddesi senden Ruhu benden insan yaratalım demesidir. Daha detaylı bilgi için [Peygamberlik ve Vahiy](https://padrosum.github.io/yazılar/nubuvvet-vahiy.html) 
+---  
+*Bizim ifadesinden kasıt şudur; İnsan'ın yaratılışı ikiye ayrılır bunlar; 1)Madde 2)Ruh idir ve Madde, Tanrı tarafından yaratılmış olmasına karşın Ruh, ondan sudur etmiştir. Buradaki biz ifadesinden kasıt Tanrı'nın önceden yaratığı gök ve yere -özellikle yere- Maddesi senden Ruhu benden insan yaratalım demesidir. Daha detaylı bilgi için [Peygamberlik ve Vahiy](https://padrosum.github.io/yazılar/nubuvvet-vahiy.html) 
 
 ### 1-27
 Yani Elohim, adamı kendi suretinde yarattı. Kendi suretinde onu kadın ve dişi olarak var etti. Tanrı onları yarattı.
