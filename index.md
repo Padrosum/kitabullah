@@ -17,11 +17,12 @@ Bismillahi Rahmani Rahim.
 
 ### 1-1
 
-Başlangıçta Elohim* Gökleri** ve yeri yarattı.  
+Başlangıçta* Elohim** Gökleri*** ve yeri yarattı.  
 
 ----  
-*Elohim bu bağlam içinde "Yüce Yaradan/Vareden demektir." demektir.  
-**Daha evvel gök olarak/tekil çevirdiğim yerde bir hatta yapmışım. "Gökler" diye çoğul olması gerekiyordu.
+*Başlangıçta ifadesi ezeli evren/dünya tasavvurunda karşı çıkıştır.  
+**Elohim bu bağlam içinde "Yüce Yaradan/Vareden demektir." demektir.  
+***Daha evvel gök olarak/tekil çevirdiğim yerde bir hatta yapmışım. "Gökler" diye çoğul olması gerekiyordu.  
 
 ### 1-2
 
@@ -60,7 +61,7 @@ Elohim dedi ki Göğün altındaki sular bir yere toplansın ve kuru kara zuhur 
 
 ### 1-10
 
-Zuhur eden alana Dünya ve toplanılan suya da Deniz mahlasını uygun buldu.
+Zuhur eden alana Dünya ve toplanılan suya da deniz mahlasını uygun buldu.
 
 ### 1-11
 
@@ -128,8 +129,6 @@ Elohim dedi ki “Hadi bizim* suretimizde bizim gibi adam yaratalım. Onlara şu
 
 ### 1-27
 Yani Elohim, adamı kendi suretinde yarattı. Kendi suretinde onu kadın ve dişi olarak var etti. Tanrı onları yarattı.
-*
-Tefsir için 1-26T'ye bakınız!
 
 ### 1-28
 Elohim, onları kutsadı ve dedi ki “Bereketli ve çok olun vedahi dünyayı doldurun, ona boyun eğdirin, domine edin şunları; Denizin balıkları, Göğün kuşları ve dünya üzerinde hareket eden herşeye.”
