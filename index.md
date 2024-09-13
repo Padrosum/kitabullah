@@ -120,5 +120,16 @@ Yani Tanrı, adamı kendi suretinde yarattı. Kendi suretinde onu kadın ve diş
 *
 Tefsir için 1-26T'ye bakınız!
 
+### 1-28
+Rab, onları kutsadı ve dedi ki “Bereketli ve çok olun vedahi dünyayı doldurun, ona boyun eğdirin, domine edin şunları; Denizin balıkları, Göğün kuşları ve dünya üzerinde hareket eden herşeye.”
+
+### 1-29
+Ve Tanrı dedi ki “Bakın, ben size şunları verdim; Dünya üzerinde tohum veren tüm bitkiler, Meyvesi içinde tohumu olan Ağaçlar. Siz bunlara yemek için sahip olacaksınız!”
+
+### 1-30
+Ve dünyanın tüm yaratıklarına, Göklerin tüm kuşlarına, Dünya üzerinde hareket eden tüm canlılara; Ben yeşil bitkileri yiyecek olsun diye verdim. Ve dahi gerçek oldu. 
+### 1-31
+Ardından Allah Yahve yarattığı tüm şeyleri gördü hepsi çok iyiydi. Sabah-Akşamın ardından altıncı gün.
+
 
 # Devamı Çok Yakında
