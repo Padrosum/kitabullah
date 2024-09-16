@@ -159,6 +159,50 @@ Yedinci günde Tanrı yapmakta olduğu işleri bitirdi ve O yapmakta olduğu iş
 ### 2-3
 Yaratılıştan dinlendiği için Tanrı, yedinci günü kutsadı ve o günü Kutsal olarak ayırdı.
 
+### 2-4
+Bu Tanrı Yahve'nin gökleri ve yeri yaratırken ki yaratılış anlatısıdır.
+
+### 2-5
+
+Bunun üzerine hiçbir yabanıl bitki ve mahsul yetişmemişti zira ne Tanrı Yahve yağmur göndermiş idi ne de Toprağı işleyecek kişi var idi.
+
+### 2-6 
+
+Yerden çıkan çiğ/buhar/sis yeri ıslattı.
+
+### 2-7
+
+Tanrı Yahve Adem'i topraktan şekillendirip burnuna yaşam soluğunu üfledi ve o yaşayan canlı oldu.
+
+### 2-8 
+Tanrı Yahve doğuda, Aden'e bir bahçe yerleştirdi ve yarattığı adamı Adem'i oraya yerleştirdi.
+
+### 2-9
+Tanrı Yahve bahçede şunları var etti; Tüm ağaç türlerini, Göze hoş gelecek ağaları ve Yaşam ve Bilgelik ağaçlarını ise bahçenin ortasına yerleştirdi.
+
+### 2-10
+Şimdi BAHÇEYİ sulamak için Aden'den bir nehir çıkar idi. Oradan o 4 parçaya ayrılır idi.
+
+### 2-11
+
+İlk olan Fishon idi; O Altın diyarı Havilah etrafında döner idir.
+
+### 2-12
+
+Bu diyarın altını iyidir. Bdelium ve onyx buradadır.
+
+### 2-13
+
+İkinci ise Gihon; Cush diyarının atrafında dönen idir.
+
+### 2-14
+
+Üçüncü ise Hiddekel; Asyria'nın doğusuna doğru giden idir. Dördüncü Euphrates'dir.
+
+### 2-15
+
+Ardından Tanrı Yahve, Adam'ı Aden bahçesine yerleştirdi ki onun ile ilgilensin ve onu korusun.
+ 
 
 
 # Devamı Çok Yakında
