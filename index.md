@@ -85,7 +85,7 @@ Ve yeri aydınlatmak için gök kubbede olsunlar."
 
 ### 1-16
 
-Tanrı iki ışık var etti; bunlardan büyük olanı gündüze hüküm sürdü ve küçük olanı da geceye. Yüce Yaratan yıldızları da var etmişti.
+Tanrı iki ışık var etti; bunlardan büyük olanı gündüze hüküm sürdü ve küçük olanı da geceye. Tanru yıldızları da var etmişti.
 
 ### 1-17
 
@@ -93,7 +93,7 @@ Tanrı, onları göklerin kubbesine koydu ki yere ışık versin/aydınlatsın.
 
 ### 1-18
 
-Gündüz ve Geceyi egemenlik altına alsın ve birbirinden ayırsın diye ve Yüce Yaradan bunların iyi olduğunu bildi.
+Gündüz ve Geceyi egemenlik altına alsın ve birbirinden ayırsın diye ve Tanrı bunların iyi olduğunu bildi.
 
 ### 1-19
 
@@ -101,7 +101,7 @@ Akşam-Sabahtan sonra dördüncü gün.
 
 ### 1-20
 
-Tanrı dedi ki Sular, bol yaşayan canlılar taşısın ve kuşlar, Göklerin kubbesinin altındaki yerin üstünden uçsun.
+Tanrı dedi ki Sular, bol yaşayan canlılar taşırsın ve kuşlar, Göklerin kubbesinin altındaki yerin üstünden uçsun.
 
 ### 1-21
 
@@ -116,7 +116,7 @@ Tanrı, Onları takdis edip dedi ki “verimli olun ve çoğalın, denizdeki sul
 Sabah-Akşamın ardından beşinci gün.
 
 ### 1-24
-Ardından Tanrı dedi ki “Dünya kendi zuriyetinde yaşayan canlı fışkırtsın; İnekler, sürünen canlılar ve Dünya canavarları kendi kendi zuriyetlerine göre.” Vedahi gerçekleşti
+Ardından Tanrı dedi ki “Dünya kendi zuriyetinde yaşayan canlı fışkırtsın; İnekler, sürünen canlılar vedahi dünya canavarları kendi zuriyetlerine göre.” Vedahi gerçekleşti
 
 ### 1-25
 Vedahi Tanrı şunları kendilerinin zuriyetinde var etti; İnek, Dünya üzerinde sürünen herşey ve Rab bunun iyi olduğunu gördü
@@ -132,7 +132,7 @@ Tanrı dedi ki “Hadi bizim* suretimizde bizim gibi adam** yaratalım. Onlara �
 Yani Tanrı, adamı kendi suretinde yarattı. Kendi suretinde onu kadın ve dişi olarak var etti. Tanrı onları yarattı.
 
 ### 1-28
-Tanrı, onları kutsadı ve dedi ki “Bereketli ve çok olun vedahi dünyayı doldurun, ona boyun eğdirin, domine edin şunları; Denizin balıkları, Göğün kuşları ve dünya üzerinde hareket eden herşeye.”
+Tanrı, onları kutsadı ve dedi ki “Bereketli ve çok olun vedahi dünyayı doldurun, ona boyun eğdirin, domine edin şunları; Denizin balıkları, Göğün kuşları ve dünya üzerinde hareket eden herşey.”
 
 ### 1-29
 Ve Tanrı dedi ki “Bakın, ben size şunları verdim; Dünya üzerinde tohum veren tüm bitkiler, Meyvesi içinde tohumu olan Ağaçlar. Siz bunlara yemek için sahip olacaksınız!”
