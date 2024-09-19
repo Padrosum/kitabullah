@@ -138,7 +138,7 @@ Tanrı, onları kutsadı ve dedi ki “Bereketli ve çok olun vedahi dünyayı d
 Ve Tanrı dedi ki “Bakın, ben size şunları verdim; Dünya üzerinde tohum veren tüm bitkiler, Meyvesi içinde tohumu olan Ağaçlar. Siz bunlara yemek için sahip olacaksınız!”
 
 ### 1-30
-Ve dünyanın tüm yaratıklarına, Göklerin tüm kuşlarına, Dünya üzerinde hareket eden tüm canlılara; Ben yeşil bitkileri yiyecek olsun diye verdim. Gerçek oldu. 
+Ve dünyanın tüm yaratıklarına, Göklerin tüm kuşlarına, Dünya üzerinde hareket eden tüm canlılara ve Yaşam soluğuna sahip herkese; Ben yeşil bitkileri yiyecek olsun diye verdim. Gerçek oldu. 
 
 ### 1-31
 Ardından Tanrı yarattığı tüm şeyleri gördü, evet, hepsi fazlasıyla iyiydi. Sabah-Akşamın ardından altıncı gün.
