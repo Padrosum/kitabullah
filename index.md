@@ -1,12 +1,5 @@
 # Yaratılış  
 
-Bu çeviri FBV çevirisinin ve İbranice kutsal kitabın esas alınmasıyla yapılmıştır. İbranice metne sadakat ama aynı zamanda maksadçı bir çeviri anlayışı ortaya koymak istiyorum. Çeviri ve Tefsir konusundaki eleştirileriniz, fikirleriniz veyahut önerilerinizi [Twitter](https://x.com/padrosum) hesabımın dm bölümünden iletebilirsiniz. Çeviriye dahil olmak isterseniz aynı yere sizi de beklerim ;)
-
-### Özel Teşekkür Bölümü
-Twitter'dan  
-- @ebuincila  
-- @petruswerh  
-
 
 Lisans: CC BY-SA 4.0
 
@@ -202,6 +195,18 @@ Bu diyarın altını iyidir. Bdelium ve onyx buradadır.
 ### 2-15
 
 Ardından Tanrı Yahve, Adam'ı Aden bahçesine yerleştirdi ki onun ile ilgilensin ve onu korusun.
+
+### 2-16-17
+
+Tanrı Yahve emretti şöyle diyerek "Bahçenin tüm ağaçlarını yiyebilirsin ancak 'İyi ile Kötüyü bilme ağacını' hariç, bunu yemeyeceksin! Bunu yediğin gün kesinlikle öleceksin!"
+
+### 2-18
+
+"Adamın yalnız olması iyi değil!" dedikten sonra Tanrı Yahve "Ona uyan bir yardımcı yaratacağım" diye ekledi.
+
+### 2-19
+
+
  
 
 
